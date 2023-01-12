@@ -1,2 +1,2 @@
-# clkyu-github.io
+# clkyu.github.io
 Esper Love Q. Solano
