@@ -21,8 +21,10 @@ https://open.spotify.com/user/31lo7m2wy2d57b3skttpt5wsr6ui?si=fb07ffcbceec4f1c
 ** ANIME/S THAT I'VE BEEN WATCHING LATELY **
 
 > BLUE LOCK!
+
 ![image](https://user-images.githubusercontent.com/122426567/212587237-0e2ee45b-6db3-4aa5-9a38-0b1e3b21a2d5.png)
 
 > SPY X FAMILY!
+
 ![image](https://user-images.githubusercontent.com/122426567/212587564-53bc8078-6b2f-4f40-b1ec-c9baf4c8bbb4.png)
 
