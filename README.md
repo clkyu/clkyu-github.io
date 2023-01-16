@@ -9,7 +9,9 @@ Esper Love Q. Solano
 [ LISTEN TO ALL OF MY PLAYLISTS ]
 
 
+
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/12ZQMSjAARZAseWfUOvyBs?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 
 
 
@@ -17,7 +19,9 @@ Esper Love Q. Solano
 
 
 
+
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/5xFyRHhtq9uGRRXqcJT1Kk?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 
 
 
@@ -29,7 +33,9 @@ Esper Love Q. Solano
 
 
 
+
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/4SajF0RvkYGqPRyo7OETxw?utm_source=generator&theme=0" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 
 
 
@@ -39,7 +45,11 @@ Esper Love Q. Solano
 
 
 
+
 **ANIME/S THAT I'VE BEEN WATCHING LATELY**
+
+
+
 
 
 
@@ -51,9 +61,15 @@ Esper Love Q. Solano
 
 
 
+
+
+
 > SPY X FAMILY!
 
 ![image](https://user-images.githubusercontent.com/122426567/212587564-53bc8078-6b2f-4f40-b1ec-c9baf4c8bbb4.png)
+
+
+
 
 
 
